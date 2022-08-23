@@ -1,1 +1,1 @@
-Munner is currently studying hard in ALX Pre course
+Munner wants to work hard
